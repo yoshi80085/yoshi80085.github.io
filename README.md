@@ -1,0 +1,1 @@
+# yoshi80085.github.io
